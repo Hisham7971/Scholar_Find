@@ -1,1 +1,1 @@
-## A Way to Find the Best Scholar For You
+## A Way to Find the Best Scholarship For You
